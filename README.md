@@ -1,4 +1,13 @@
-# Get prompts free for the first week they are released on Substack. 📜
+# Prompt Engineering for Programmers 👨‍💻 [BUNDLE](https://app.gumroad.com/checkout?product=gnwst&option=K99aAHd095UKV_uBmn17aA%3D%3D&quantity=1) now available
+> 🤖🧠 Machine Minds AI helps Modern Programmers think like AI ☕️ Start free: [machineminds.substack.com](https://machineminds.substack.com)
+___
 
 
-[Buy Prompt Engineering for Programmers](https://app.gumroad.com/checkout?product=gnwst&option=K99aAHd095UKV_uBmn17aA%3D%3D&quantity=1)
+
+
+
+___
+
+# [Become a Gode God 🧞‍♂️](https://app.gumroad.com/checkout?product=gnwst&option=K99aAHd095UKV_uBmn17aA%3D%3D&quantity=1)
+
+## [🗞 Substack](https://machineminds.substack.com/) | [🛍 Gumroad](https://godsol.gumroad.com/) | [🕊 Twitter](https://twitter.com/MachineMindsAI)
